@@ -16,7 +16,7 @@ I'm Chi, a college senior with a passion for dissecting complex problems and tra
 
 🔥 But what really speaks volume to me is tackling new challenges. Making a significant impact in a business analyst, strategy consulting, or marketing specialist role truly excites me.
 
-📫 You can view [my resume]([url](https://docs.google.com/document/d/1FJF0xpr9QuO6tY4mCoBVH7PZpWZQmipB/edit?usp=sharing&ouid=100681869799863858910&rtpof=true&sd=true)) and contact me by emailing vu_c1@denison.edu.
+📫 You can view [my resume]([url](https://docs.google.com/document/d/1FJF0xpr9QuO6tY4mCoBVH7PZpWZQmipB/edit?usp=sharing&ouid=100681869799863858910&rtpof=true&sd=true)), and contact me directly via vu_c1@denison.edu or [LinkedIn]([url](https://www.linkedin.com/in/lchi-vu/).
 <!--
 **lchivu02/lchivu02** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
