@@ -2,7 +2,7 @@
 
 📈 Data-Driven Business Analyst | Research Enthusiast | Marketing Strategist
 
-I'm Chi, a college senior with a passion for dissecting complex problems and transforming data into strategic solutions. Armed with hands-on experience in market research, data analysis, and strategy development, I can't wait to show you how I've helped companies make data-driven decisions for growth.
+I'm Chi, a college senior in Global Commerce and Data Analytics with an Economics concentration. Armed with passion for dissecting complex problems and transforming data into strategic solutions, as well as hands-on experience in market research, data analysis, and strategy development, I can't wait to show you how I've helped companies make data-driven decisions for growth.
 
 💼 Proven Experience: In a recent consulting role, my analysis has helped a local start-up to increase their operational storage capacity by 25%. I crunched the numbers, identified consumer trends, and recommended strategic adjustments. The impact was both measurable and remarkable.
 
